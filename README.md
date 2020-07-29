@@ -1,2 +1,3 @@
 # hello-world
 My_First_Git_Repository
+Proactive engagement leader specializing in the integration of data driven strategic solutions resulting in strong account growth. I leverage built working relationships with client contacts, stakeholders, and decision makers with a documented ability to identify, track, and act on opportunities to increase client satisfaction. Expertly engage audiences in crucial conversations to drive forward, creating a pool of shared meaning, moving to active resolution and results. Curious and agile technology focused project manager leveraging the power of data to create unique solutions for business problems.
